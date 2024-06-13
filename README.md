@@ -1,7 +1,7 @@
 
 👋 Hi, I’m @HellxHound29
 👀 I’m interested in MUSIC
-🌱 I’m currently learning Cloud Bae Application
+🌱 I’m currently learning Cloud Base Application
 💞️ I’m looking to collaborate on different projects
 📫 How to reach me here!!
 😄 Pronouns: She/Her
